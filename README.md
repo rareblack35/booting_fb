@@ -10,3 +10,4 @@ https://github.com/P4HRUL/BOT
 [![](https://img.shields.io/badge/Facebook-blue?logo=Facebook&logoColor=blue&labelColor=white)](https://www.facebook.com/mhfidz.xy)[![](https://img.shields.io/badge/Instagram-red?logo=Instagram&logoColor=red&labelColor=white)](https://www.instagram.com/mhff_xy) [![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/6283114500777?text=Asalamualaikum+kak+Vino+ganteng)
 ## KASIH BINTANG WOY🌟🌟🌟🌟🌟🌟🌟
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Selamat+Bersenang-senang....!+)
+Nx
